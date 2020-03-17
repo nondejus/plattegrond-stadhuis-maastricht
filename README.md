@@ -1,1 +1,0 @@
-# plattegrond-stadhuis-maastricht
